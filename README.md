@@ -2,13 +2,13 @@
 
 <h3>以下所有翻墙软件绿色无毒，手机系统和电脑防火墙强删或报毒皆因国产设备、系统及软件协助进行网络封锁所致。搜索敏感字请使用正版谷歌拼音输入法。</a></h3>
 
-<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/ESSpVVGkwUBspVdxj.apk">[1]无界浏览VPN下载（防止系统强删版本）</a></h3>
+<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E5%BD%A9%E8%99%B9%E9%9F%B3%E4%B9%90.apk">[1]无界浏览VPN下载（防止系统强删版本）</a></h3>
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/ESSpVVGkwUBspVdxj.apk">[1]无界浏览安卓版下载（防止系统强删版本）</a></h3>
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/ESSpVVGkwUBspVdxj.apk">[1]无界浏览电脑版下载（需手动设置电脑防火墙放行）</a></h3>
 
-<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/EUZZkFERUBCAVokHW.apk">[2]自由门VPN下载（防系统强删版本）</a></h3>
+<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E5%AD%A6%E5%A0%82TV.apk">[2]自由门VPN下载（防系统强删版本）</a></h3>
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/EUZZkFERUBCAVokHW.apk">[2]自由门安卓版下载（防系统强删版本）</a></h3>
 
