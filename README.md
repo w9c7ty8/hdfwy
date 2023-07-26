@@ -22,4 +22,4 @@
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E8%B0%B7%E6%AD%8C%E6%8B%BC%E9%9F%B3%E8%BE%93%E5%85%A5%E6%B3%95.apk">[5]（备用）谷歌拼音输入法安卓版下载（防止系统强删版本）</a></h3>
 
-<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6%E4%BD%BF%E7%94%A8%E8%AF%B4%E6%98%8E%E4%B9%A6.txt">[6]翻墙软件说明书</a></h3><p></body></html>
+<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6%E4%BD%BF%E7%94%A8%E8%AF%B4%E6%98%8E%E4%B9%A6.txt">[6]翻墙软件说明书汇总</a></h3><p></body></html>
