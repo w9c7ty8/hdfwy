@@ -16,8 +16,8 @@
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E6%B1%AA%E6%B1%AA%E5%90%A7.apk">[3]神州明见安卓版（防止系统强删版本）</a></h3>
 
-<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/FUVIlWWFQVCSBa6aF.apk">[4]新唐人电视安卓版下载（防止系统强删版本）</a></h3>
+<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/Gf68.rar">[4]iPPOTV电脑版下载（需手动设置电脑防火墙放行，解压密码f=T3!）</a></h3>
 
-<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/kUOQFGLEBCBnp4egi.apk">[5]希望之声安卓版下载（防止系统强删版本）</a></h3>
+<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E4%BA%B2%E5%AE%9D%E5%84%BF%E6%AD%8C.apk">[5]希望之声安卓版下载（防止系统强删版本）</a></h3>
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E7%BF%BB%E5%A2%99%E8%BD%AF%E4%BB%B6%E4%BD%BF%E7%94%A8%E8%AF%B4%E6%98%8E%E4%B9%A6.txt">[6]翻墙软件说明书</a></h3><p></body></html>
