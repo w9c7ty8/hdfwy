@@ -1,6 +1,6 @@
 <!DOCTYPE html><html><head><meta http-equiv=Content-Type content="text/html;charset=utf8"><meta name="viewport" id="viewport" content="width=device-width,initial-scale=1.0,minimum-scale=1.0,maximum-scale=1.0,user-scalable=no"></head><body><h2 style="text-align:center;">翻墙软件下载</h2><hr/>
 
-<h3>以下所有翻墙软件绿色无毒，手机系统和电脑防火墙强删或报毒皆因国产设备、系统及软件协助进行网络封锁所致。搜索敏感字请使用正版谷歌拼音输入法。</a></h3>
+<h3>以下所有翻墙软件绿色无毒，如果手机系统或电脑防火墙强删翻墙软件或报病毒皆因国产设备、系统及软件协助进行网络封锁所致。搜索敏感字请使用正版谷歌拼音输入法。</a></h3> 
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E5%BD%A9%E8%99%B9%E9%9F%B3%E4%B9%90.apk">[1]无界浏览VPN下载（防止系统强删版本）</a></h3>
 
