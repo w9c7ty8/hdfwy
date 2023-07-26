@@ -4,17 +4,17 @@
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E5%BD%A9%E8%99%B9%E9%9F%B3%E4%B9%90.apk">[1]无界浏览VPN下载（防止系统强删版本）</a></h3>
 
-<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/ESSpVVGkwUBspVdxj.apk">[1]无界浏览安卓版下载（防止系统强删版本）</a></h3>
+<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E8%99%BE%E7%B1%B3%E9%9F%B3%E4%B9%90.apk">[1]无界浏览安卓版下载（防止系统强删版本）</a></h3>
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/ESSpVVGkwUBspVdxj.apk">[1]无界浏览电脑版下载（需手动设置电脑防火墙放行）</a></h3>
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E5%AD%A6%E5%A0%82TV.apk">[2]自由门VPN下载（防系统强删版本）</a></h3>
 
-<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/EUZZkFERUBCAVokHW.apk">[2]自由门安卓版下载（防系统强删版本）</a></h3>
+<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E6%8C%96%E5%93%87%E9%9F%B3%E4%B9%90.apk">[2]自由门安卓版下载（防系统强删版本）</a></h3>
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/EUZZkFERUBCAVokHW.apk">[2]自由门电脑版下载（需手动设置电脑防火墙放行翻墙软件）</a></h3>
 
-<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/gWGEFDCZRVCCp8H87.apk">[3]神州明见安卓版（防止系统强删版本）</a></h3>
+<h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/%E6%B1%AA%E6%B1%AA%E5%90%A7.apk">[3]神州明见安卓版（防止系统强删版本）</a></h3>
 
 <h3><a href="https://github.com/w9c7ty8/w9c7ty8.github.io/blob/main/FUVIlWWFQVCSBa6aF.apk">[4]新唐人电视安卓版下载（防止系统强删版本）</a></h3>
 
